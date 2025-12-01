@@ -1,0 +1,1 @@
+# An-lise-Resultados-F1-2022
